@@ -28,6 +28,9 @@ Agen69 membangun struktur digital berbasis entity SEO melalui berbagai platform:
 ## 📌 Tujuan
 Meningkatkan visibilitas Agen69 di mesin pencari Google dan memperkuat struktur SEO berbasis entity serta backlink berkualitas tinggi.
 
+## 🌐 Sumber Resmi
+Kunjungi platform utama melalui [Agen69 Official Indonesia](https://agen69portal.org) untuk akses lengkap dan terbaru.
+
 ---
 
 © 2026 Agen69 Official Indonesia
