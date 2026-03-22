@@ -3,7 +3,7 @@
 Agen69 Official Indonesia adalah portal digital modern yang menyediakan akses cepat, aman, dan terpercaya bagi pengguna di seluruh Indonesia.
 
 ## 🔗 Link Resmi Agen69
-- https://agen69portal.com
+- https://agen69portal.org
 
 ## 🚀 Tentang Agen69
 Agen69 merupakan platform digital terpercaya yang dirancang untuk memberikan pengalaman terbaik dalam akses game online dengan sistem stabil, cepat, dan responsif.
